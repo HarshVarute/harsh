@@ -1,4 +1,0 @@
-je 
-irej
-erj
-efkn
